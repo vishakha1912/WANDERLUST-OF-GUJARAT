@@ -1,1 +1,1 @@
-# Wanderlust-of-Gujarat
+# WANDERLUST-OF-GUJARAT.github.io
